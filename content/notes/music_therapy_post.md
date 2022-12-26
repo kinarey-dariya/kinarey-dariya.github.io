@@ -1,4 +1,7 @@
 
+---
+title: "Music Therapy Blog Post"
+---
 - The use of music for personal therapeutic outcomes
 	- Encouragement of flow
 	- Rhythmic entrainment of brain waves:
