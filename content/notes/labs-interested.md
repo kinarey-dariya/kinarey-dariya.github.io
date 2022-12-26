@@ -1,3 +1,7 @@
+---
+title: "Labs I'm Interested In"
+---
+
 - - - 
 **Date** = [[2022-12-27]]
 **Tags** = [[College Planning]]
