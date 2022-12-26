@@ -1,0 +1,30 @@
+
+- The use of music for personal therapeutic outcomes
+	- Encouragement of flow
+	- Rhythmic entrainment of brain waves:
+		- Define entrainment.
+		- Studies on binaural beats show that entrainment occurs, and a higher-level entrainment of emotional state is also possible during a song;
+		- This is seen in long-form classical pieces.
+	- Processing emotions:
+		- Resonance with subject matter/lyrical/emotional content in order to begin processing of resonant information within.
+		- Positive feelings associated with creation and performance.
+		- In jamming with others, and collaborating on musical creation, you create a safe nonverbal communicative space which can allow you to be vulnerable in ways that you find difficult, but are still necessary for full human connection. It allows us to connect deeply with people without needing to "open up" in ways that are otherwise uncomfortable.
+	- //With classical music, plugging in to a spiritual lineage that is formed in the ether for each song. Everyone's emotions about it pool up.//
+	- Different parts of musical expression as corresponding to different emotional experiences.
+		- Tempo -> Intensity
+		- Melody -> Emotion
+		- Every piece of improvised music is a journey through the beginning/middle/ending of a network of emotions being activated in your body.
+	- Music therapy allows you to develop skills relevant to these expressive dimensions of music, and while doing that, you also develop the capacity to *first tolerate*, and then enjoy the full realm of human emotional experience.
+	- Working on music = working on your inner life, and the ways in which you are held back while making music correspond to the ways you are inhibited or functioning with stuckness in your lived experience.
+	- As the ability to respond musically develops and musical communication with yourself or others gets deeper, the ability to organise this experience into beautiful phrases which bring you the joy of beauty, allow you to experience a positive sense of your own identity, also develop.
+	- A musical self forms, and the musical self can help you navigate difficult emotions while channeling the energy into sounds that can carry them in ways that you may not be able to express in words.
+		- In doing so, you confront the emotion, express it, allow it to pass, and re-integrate a more complex and competent version of yourself.
+	- The essentially nonverbal "musical self" (which overall is the "creative self"), is the core of the developing personality: it *creates* a coherent, unifying self by integrating your thoughts, emotions and bodily movements into concrete ideas about yourself which then crystallise into your personality.
+	- Aligning with music, which is coherent and rhythmic vibration, allows us the literal act of creating music to structure the waveforms we consist of, in ways that are more rhythmic, more in sync with each other: it creates a movement towards structured creation of our minds
+	- Experiences of merging  with / becoming the music are a valuable: to the extent that the person becomes the music, the tonal/rhythmic aspects of the music can substitute for physical experiences, because they are analogues of physical experience. 
+		- Physically impaired clients can experience motion in melody and rhythm, emotionally constricted clients can experience emotion because the energetic subject matter will resonate with things which are blocked within them. (E.g. someone who is emotionally numb at most times but listens to music about longing for a lover)
+	- Expressive music let us connect with human emotions in a way that bypasses fear and anxiety. For people with significant levels of affective or cognitive impairment, musical interaction can represent the only means for them to manifest their intelligent awareness, and to connect to other people.
+	- The specific inner workings, structures and processes of music are used to depersonalize aspects of therapy that might otherwise be more problematic, threatening, or challenging;
+		- Slow, reflective pieces can be used with hyperactive children. 
+		- Pop music with constant stable grooves can help with motor disorders. 
+	- Music allows us to to cope with erosion of will, which is one of the worst consequences of disability, illness or mental disorder and misalignment. Making music allows us to feel like we are still powerful and capable of creating something beautiful.
