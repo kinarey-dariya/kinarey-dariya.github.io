@@ -1,5 +1,5 @@
 ---
-title: ∿ Second Brain 🧠
+title: 🧠 Second Brain 
 enableToc: false
 ---
 
